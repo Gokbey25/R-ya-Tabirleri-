@@ -2,7 +2,7 @@
 
 Rüyalar, insanlık tarihi kadar eski ve gizemli bir olgudur. İnsanlar yüzyıllar boyunca gördükleri rüyaların anlamlarını çözmeye çalışmış, bu konuda çeşitli yorumlar ve inançlar geliştirmiştir. Kimi rüyalar, kişinin bilinçaltındaki düşüncelerin yansıması olarak değerlendirilirken, kimileri geleceğe dair işaretler taşıdığına inanılan özel mesajlar olarak yorumlanır. Özellikle İslam kültüründe rüya tabirleri önemli bir yer tutar ve hem dini kaynaklardan hem de halk arasındaki tecrübelerden beslenir. 
 
-Siz de gördüğünüz rüyaların anlamlarını öğrenmek, sembollerin ne ifade ettiğini keşfetmek ve detaylı açıklamalara ulaşmak istiyorsanız, [Rüya Tabirleri](https://www.islamiruyatabirleri.org/) sayfasını ziyaret edebilirsiniz. Burada yüzlerce farklı rüya yorumu, güvenilir ve kaynaklı bir şekilde yer almaktadır.
+Siz de gördüğünüz rüyaların anlamlarını öğrenmek, sembollerin ne ifade ettiğini keşfetmek ve detaylı açıklamalara ulaşmak istiyorsanız, [Rüya Tabirleri(https://www.islamiruyatabirleri.org/) sayfasını ziyaret edebilirsiniz. Burada yüzlerce farklı rüya yorumu, güvenilir ve kaynaklı bir şekilde yer almaktadır.
 
 ## Rüyaların İslam’daki Yeri
 
@@ -36,4 +36,4 @@ Ayrıca rüyaların birçoğu sembolik olduğu için, yorum yapılırken kişise
 
 Rüyalar, hem bilimsel hem de manevi açıdan derin bir araştırma konusudur. İster bilinçaltının bir yansıması, ister ilahi bir mesaj olsun; rüyalar, insanların hayatında özel bir yere sahiptir. Onları anlamak, kendimizi daha iyi tanımamıza ve manevi dünyamıza ışık tutmamıza yardımcı olabilir.  
 
-Eğer siz de gördüğünüz rüyaların anlamını öğrenmek, detaylı yorumlara ulaşmak ve güvenilir bilgiler edinmek istiyorsanız [Rüya Tabirleri](https://www.islamiruyatabirleri.org/) sayfasını ziyaret edebilirsiniz. Burada yüzlerce rüya sembolü hakkında hem dini hem de kültürel yorumlar bulabilirsiniz. Unutmayın, rüya tabirleri sadece geleceği görmek için değil, aynı zamanda kendimizi keşfetmek için de güçlü bir araçtır.
+Eğer siz de gördüğünüz rüyaların anlamını öğrenmek, detaylı yorumlara ulaşmak ve güvenilir bilgiler edinmek istiyorsanız Rüya Tabirleri (https://www.islamiruyatabirleri.org/) sayfasını ziyaret edebilirsiniz. Burada yüzlerce rüya sembolü hakkında hem dini hem de kültürel yorumlar bulabilirsiniz. Unutmayın, rüya tabirleri sadece geleceği görmek için değil, aynı zamanda kendimizi keşfetmek için de güçlü bir araçtır.
