@@ -53,7 +53,7 @@ Ayrıca rüyaların birçoğu sembolik olduğu için, yorum yapılırken kişise
 
 Rüya tabirleri kültürden kültüre değişiklik gösterebilir. Örneğin; aynı rüyada bir nesne bazı toplumlarda uğur, bazı toplumlarda uğursuzluk olarak yorumlanabilir. İslam kültüründe rüya tabirleri, dini kaynaklara dayalı olduğu için belirli bir standarda sahiptir. Buna karşın halk kültüründe rüya yorumları, nesiller boyunca aktarılan tecrübeler ve inanışlar üzerinden yapılır. 
 
-Rüya tabirlerini doğru ve güvenilir kaynaklardan öğrenmek önemlidir. [Rüya Tabirleri](https://www.islamiruyatabirleri.org/) sitesi, hem dini hem de halk kültürü yorumlarını bir arada sunarak kullanıcıya geniş bir bilgi arşivi sağlar.
+Rüya tabirlerini doğru ve güvenilir kaynaklardan öğrenmek önemlidir. Rüya Tabirlerisitesi, hem dini hem de halk kültürü yorumlarını bir arada sunarak kullanıcıya geniş bir bilgi arşivi sağlar.
 
 ---
 
