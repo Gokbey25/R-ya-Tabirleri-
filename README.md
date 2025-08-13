@@ -14,7 +14,7 @@ Peygamber Efendimiz (s.a.v.) de rüyaların önemine değinmiş ve özellikle sa
 
 Rüya tabirleri, yalnızca sembollerin anlamını çözmek değil, aynı zamanda kişinin manevi dünyasında yol gösterici olabilecek ipuçları sunar. Bazı rüyalar, hayatımızda alacağımız kararları etkileyebilecek kadar güçlü mesajlar içerebilir. Örneğin; bir kişinin rüyasında su görmesi, temiz ve berrak su ise huzur ve bereket; kirli su ise sıkıntı ve sorun olarak yorumlanabilir. 
 
-Günümüzde pek çok insan rüya tabirlerini internet üzerinden araştırmakta ve güvenilir kaynaklar aramaktadır. Bu noktada [Rüya Tabirleri](https://www.islamiruyatabirleri.org/) gibi kapsamlı içerikler sunan siteler, hem doğru bilgi hem de geniş veri arşivi sayesinde öne çıkmaktadır.
+Günümüzde pek çok insan rüya tabirlerini internet üzerinden araştırmakta ve güvenilir kaynaklar aramaktadır. Bu noktada Rüya Tabirleri gibi kapsamlı içerikler sunan siteler, hem doğru bilgi hem de geniş veri arşivi sayesinde öne çıkmaktadır.
 
 Sık Görülen Rüyalar ve Anlamları
 
